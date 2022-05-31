@@ -1,0 +1,2 @@
+# allahsizbaris.github.io
+Takmayın
